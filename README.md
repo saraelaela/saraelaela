@@ -1,10 +1,10 @@
 ## Hi there 👋
 
 
-I'm Sara - Web Developer & Digital Designer
+I'm Sara - Web Developer & Digital Designer  
 Welcome to my GitHub account. Below you can find some facts about me and take a look at my recent projects.
 
-So far I have
+So far I have  
   ⚡ a Bachelor's degree in Communication Design  
   ▓▒░(°◡°)░▒▓ 4+ years experience in the graphic design industry, working at the intersection of design, animation and web developement   
   🌱 recently graduated from Upleveled Full Stack Web Development Program  
