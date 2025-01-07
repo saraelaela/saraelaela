@@ -13,7 +13,7 @@ So far I have
 ---
 Things I like to do in my spare time:
 
-  („¬ᴗ¬„) Working on my Zest, a Magazin about Food Culture (launching soon)  
+  („¬ᴗ¬„) Working on Zest, a Magazin about Food Culture (launching soon)  
   (๑ᵔ⤙ᵔ๑) Cooking  
   ʕ •ᴥ• ʔ Pet Sitting   
 
